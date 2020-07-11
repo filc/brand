@@ -1,1 +1,1 @@
-# press-kit-rewrite
+# Filc Napló press-kit
