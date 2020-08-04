@@ -1,1 +1,1 @@
-# Filc Napló press-kit
+# Filc Napló design elemei
